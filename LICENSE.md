@@ -1,4 +1,4 @@
-# 
+# Enhance Logic Pro for macOS with Logic Pro for macOS smart Filter: 4K-export & audio-cleanup, the #1 filter. Includes 4K-export and audio-cleanup for a smoother and more creative
 
 
 
